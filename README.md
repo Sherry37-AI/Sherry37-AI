@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Shaheer
+- 👀 An aspiring AI specialist
+- 🌱 I’m currently doing BS(AI)
+- 📫 I am also interested in Hacking
+- 😄 I am an expert web developer and graphic designer
